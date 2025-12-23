@@ -17,5 +17,5 @@ I joined GitHub not just to explore tech projects, but to find an alternative wa
 - Love connecting people with the right opportunities  
 
 ## Let's Connect!
-If you’re interested in networking, learning about opportunities, or just want to say hi, feel free to open an issue—I’d love to hear from you!  
+If you’re interested in networking, learning about opportunities, or just want to say hi, feel free to open an issue. I’d love to hear from you!  
 [Connect with me on LinkedIn](https://www.linkedin.com/in/yourprofile/)
