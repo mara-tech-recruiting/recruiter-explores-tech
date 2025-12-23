@@ -12,7 +12,7 @@ I joined GitHub not just to explore tech projects, but to find an alternative wa
 - Explore creative ways to network and share resources  
 
 ## Fun Facts About Me
-- I have a Chihuahua pup named Flynn, after the character from *Tron* 🐶  
+- I have a Chihuahua pup named Flynn.. YES, after the character from Tron 🐶  
 - Always curious about new tech and recruiting trends  
 - Love connecting people with the right opportunities  
 
